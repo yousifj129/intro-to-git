@@ -4,4 +4,5 @@
 
 #####
 
-$$\sigma \sigma boy \sigma boy \sigma boy, \beta \alpha \cdot$$
+$$\sigma \sigma boy \sigma boy \sigma boy$$
+$$Каждая девчонка хочет танцевать с тобой$$
